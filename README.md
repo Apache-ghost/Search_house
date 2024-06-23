@@ -1,0 +1,5 @@
+![gg](https://github.com/Apache-ghost/Search_house/assets/125418589/b61f3e69-48df-4bc1-a397-18cb2153918a)
+![gggggg](https://github.com/Apache-ghost/Search_house/assets/125418589/0b5eab0b-aa94-46ef-bf45-925274401290)
+![gggg](https://github.com/Apache-ghost/Search_house/assets/125418589/5219a0f0-a8b6-4671-834d-78d5a3b157cf)
+![ggggg](https://github.com/Apache-ghost/Search_house/assets/125418589/fbd92e3e-a139-4d81-89c9-47a9da14539e)
+![ggggggg](https://github.com/Apache-ghost/Search_house/assets/125418589/b07745b6-a852-46bb-8b24-8c47abfb0c24)
